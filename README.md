@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fujitahisami
-- 👀 I’m interested in cooking,teaselemony
+- 👀 I’m interested in cooking,teaselemony,shopping
 - 🌱 I’m currently learning cpytro
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
