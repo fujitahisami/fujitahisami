@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fujitahisami
+- 👋 Hi, I’m @fujitahisami hisax
 - 👀 I’m interested in cooking,teaselemony,shopping,traveling
 - 🌱 I’m currently learning cpytro
 - 💞️ I’m looking to collaborate on ...
