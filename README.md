@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fujitahisami hisax
-- 👀 I’m interested in cooking,teaselemony,shopping,
+- 👀 I’m interested in cooking,teaselemony,shopping,ballet Jornal
 - 🌱 I’m currently learning cpytro
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
